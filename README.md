@@ -10,5 +10,5 @@ No AI or outsourcing allowed for this one, use yer brain
 
 # Scratch Work
 
-
+Second 23 in source video has dancing (needs a little filling in) and Usagi pose.
 
